@@ -34,7 +34,7 @@ Certificates for soft and professional skills.
 
 ## 📌 Contact
 **Jhoam Berbeo**  
-📧 alsanchetosgmail.com
+📧 alsanchetos@gmail.com
 🌐 https://www.linkedin.com/in/jhoam-alejandro-berbeo-guerrero-b91105361
 
 ---
